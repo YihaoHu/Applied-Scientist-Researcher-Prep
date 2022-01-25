@@ -1,1 +1,1 @@
-# Applied_Scientist-Researcher_Prep
+# Applied Scientist/Researcher Prep
